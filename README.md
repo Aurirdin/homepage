@@ -1,3 +1,2 @@
-# homepage
 
 🧙Hocus-pocus!
